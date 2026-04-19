@@ -1,4 +1,3 @@
-Project archived on 2026-03-05. I'm no longer interested in Twitch. So much garbage content. Every time I go on the site it's worse.
 
 # TwitchAdSolutions
 
